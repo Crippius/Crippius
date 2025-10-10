@@ -14,7 +14,7 @@ A Double Degree Student in High Performance Computing Engineering @ Politecnico 
 
 
 
-### 📄 Know about my experiences [here](https://drive.google.com/file/d/1pFC013fKitrIiXoquKWncrgtsBIjrltr/view?usp=sharing)
+### 📄 Know about my experiences [here](https://drive.google.com/file/d/1wvbywm4xN3td45P95s6Z2xZastfe4nce/view?usp=sharing)
 
 ### 📫 How to reach me [crippa.tommaso@gmail.com](crippa.tommaso@gmail.com)
 
