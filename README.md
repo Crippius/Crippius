@@ -29,6 +29,6 @@ A Double Degree Student in High Performance Computing Engineering @ Politecnico 
 
 ## 🎯 Other accomplishments and objectives: 
 - Climbed Mont Blanc and Mount Kilimanjaro
-- Training for a marathon
+- Ran a marathon
 - Looking for new challenges!
 
